@@ -1,1 +1,0 @@
-Mushbox web home - landing page and guides
